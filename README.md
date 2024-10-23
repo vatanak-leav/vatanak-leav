@@ -19,7 +19,7 @@
 
 - 💬 Ask me about **C++, Java**
 
-- 📫 How to reach me **leavsovatanak@gmail.coom**
+- 📫 How to reach me **leavsovatanak@gmail.com**
 
 - ⚡ Fun fact **I think I'm Funny , Talk a lot, and Coding till dead**
 
